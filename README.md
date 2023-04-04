@@ -9,3 +9,8 @@ Telefone: (14)99193685
 
 E-mail: teste@unimar.com.br
 ---
+Experiência:
+Aluno da Unimar (atualmente)
+Vendedor de Picolé
+Formado em Medicina 
+Professor de Alemão
